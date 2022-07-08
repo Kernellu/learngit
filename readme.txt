@@ -1,2 +1,2 @@
-I am Kernellu
-I wanna to be an character voice
+just a test!
+I am Kernellu,I wanna to be an cv
